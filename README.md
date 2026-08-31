@@ -2,7 +2,7 @@
 
 ## [g7ta.github.io](https://g7ta.github.io)
 
-## Grand 7 | G7TA (Trustworthy Ai)
+## Grand 7 | G7TA | Trustworthy Ai
 
 **The Foundational Pillars of Trustworthy Ai**
 
@@ -38,9 +38,9 @@ Empowering organizations with the **Grand 7** framework, a set of principles ens
 
 **Join the Grand 7 Movement**
 
-Join the **Grand 7** movement and build trustworthy AI systems that prioritize human values and capabilities today!
+Join the **Grand 7** movement and build trustworthy Ai systems that prioritize human values and capabilities today!
 
-If you have built a trustworthy AI System, App, or Website, you can use the Grand 7 logo to demonstrate your commitment to these principles.
+If you have built a trustworthy Ai System, App, or Website, you can use the Grand 7 logo to demonstrate your commitment to these principles.
 
 You will be listed as **Grand 7** | G7TA licensed, with an accreditation link that you can embed on your site.
 
@@ -51,4 +51,4 @@ To apply, just send an **[E-Mail](mailto:bit.rf.gd@gmail.com)** with a link to y
 **URL Grand 7 Document: [https://g7ta.github.io](https://g7ta.github.io)**
 
 
-© 2026 Grand 7 | G7TA | Trustworthy AI
+© 2026 Grand 7 | G7TA | Trustworthy Ai
