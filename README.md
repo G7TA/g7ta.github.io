@@ -48,7 +48,7 @@ To apply, just send an **[E-Mail](mailto:bit.rf.gd@gmail.com)** with a link to y
 
 **Grand 7's GitHub Account: [github.com/G7TA](https://github.com/G7TA)**
 
-**URL of this Document: [https://g7ta.github.io](https://g7ta.github.io)**
+**URL Grand 7 Document: [https://g7ta.github.io](https://g7ta.github.io)**
 
 
 © 2026 Grand 7 | G7TA | Trustworthy AI
