@@ -36,6 +36,19 @@ Empowering organizations with the **Grand 7** framework, a set of principles ens
 
 **Compliance: Grand 7** ensures that Ai solutions align with regulatory requirements and industry standards.
 
-**Join the Grand 7 movement and build trustworthy Ai systems that prioritize human values and capabilities today!**
+**Join the Grand 7 Movement**
 
-If You have build trustworthy Ai System, App or Website You can use the **Grand 7** Logo to demonstrate your principles, You will be listed as **Grand 7** | G7TA licensed with an accreditation link to embed on Your site. To apply just write an **[E-Mail](mailto:bit.rf.gd@gmail.com)** with a Link to the Site and G7TA in the subject.
+Join the **Grand 7** movement and build trustworthy AI systems that prioritize human values and capabilities today!
+
+If you have built a trustworthy AI System, App, or Website, you can use the Grand 7 logo to demonstrate your commitment to these principles.
+
+You will be listed as **Grand 7** | G7TA licensed, with an accreditation link that you can embed on your site.
+
+To apply, just send an **[E-Mail](mailto:bit.rf.gd@gmail.com)** with a link to your site and G7TA in the subject.
+
+**Grand 7's GitHub Account: [github.com/G7TA](https://github.com/G7TA)**
+
+**URL of this Document: [https://g7ta.github.io](https://g7ta.github.io)**
+
+
+© 2026 Grand 7 | G7TA | Trustworthy AI
