@@ -1,4 +1,4 @@
-# Grand 7 | G7TA
+# Grand 7
 
 ## [g7ta.github.io](https://g7ta.github.io)
 
