@@ -38,4 +38,4 @@ Grand 7 is a comprehensive framework for building trustworthy Ai systems. By est
 
 **Join the Grand 7 movement and build trustworthy Ai systems that prioritize human values and capabilities today!**
 
-**[Contact](https://astral.ai.studio/)**
+If You have build trustworthy Ai System, App or Website You can use the G7 Logo to demonstrate your principles, You will be listed as Grand 7 | G7TA licensed with an accreditation link to embed on Your site. To apply just write an **[E-Mail](mailto:bit.rf.gd@gmail.com)** with a Link to the Site and G7TA in the subject.
