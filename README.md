@@ -1,8 +1,8 @@
 # Grand 7
 
-**Domain: [g7ta.github.io](https://g7ta.github.io)**
-
 ## Grand 7 | G7TA | Trustworthy Ai
+
+**[g7ta.github.io](https://g7ta.github.io)**
 
 **The Foundational Pillars of Trustworthy Ai**
 
