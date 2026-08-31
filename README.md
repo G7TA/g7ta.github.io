@@ -2,7 +2,7 @@
 
 ## [g7ta.github.io](https://g7ta.github.io)
 
-## Grand 7
+## Grand 7 | G7TA (Trustworthy Ai)
 
 **The Foundational Pillars of Trustworthy Ai**
 
